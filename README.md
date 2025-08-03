@@ -6,7 +6,7 @@
 - After this, Tea was arranged in hostel no.2 .
 ### At 10.30 AM
 - list2
-- Harsimran Sir addressed us and aware us about college infrastructure and facilities.
+- Harsimran Sir addressed us and aware us abou.t college infrastructure and facilities.
 - After this, HoD of applied science
 Harpreet Kaur Grewal Mam addressed us and gave us blessing for our new journey.
 - Then our principal, Dr. Sahejpal Singh gave us speech.
