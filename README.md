@@ -27,3 +27,10 @@ Harpreet Kaur Grewal Mam addressed us and gave us blessing for our new journey.
 - Lecture by Dr. Jaswinder Singh Sir, who is lecturer in Physics and Ex-Incharge Circle Inspection Team punjab as well as Sir is Ex-asstf. state project director(Science) Punjab. Sir has received many awards. One of the award was Asian excellence award 2022(Between 9 countries).The Sir told us that math is the base of everything. In the end, the Sir showed us the divine vision of God.
 ### At 11 AM to 1 PM
 Lecture by Dr. Priya Darshani Madam on "Universal Human Values". Mam taught us that happiness is the ultimate goal in life. Mam taught us that three essential things in life are: understanding, relationships, and physical comforts.
+## Day4
+### At 9.30 to 10.30
+We got a lecture on P2P by our seniors. They taught and explained us very well.
+### At 10.30 to 11.30
+Now our English lecture started which was conducted by Professor Manjot Kaur. He took our introduction.
+#### After this we had a break for one hour from 11:30 to 12:30.
+
