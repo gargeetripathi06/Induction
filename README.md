@@ -28,9 +28,10 @@ Harpreet Kaur Grewal Mam addressed us and gave us blessing for our new journey.
 ### At 11 AM to 1 PM
 Lecture by Dr. Priya Darshani Madam on "Universal Human Values". Mam taught us that happiness is the ultimate goal in life. Mam taught us that three essential things in life are: understanding, relationships, and physical comforts.
 ## Day4
-### At 9.30 to 10.30
+### At 9.30 to 10.30 AM
 We got a lecture on P2P by our seniors. They taught and explained us very well.
-### At 10.30 to 11.30
+### At 10.30 to 11.30 AM
 Now our English lecture started which was conducted by Professor Manjot Kaur. He took our introduction.
-#### After this we had a break for one hour from 11:30 to 12:30.
-
+#### After this we had a break for one hour from 11:30 AM to 12:30 PM.
+### At 12.30 to 2.30 PM
+-Today was the 2nd day of Priya Darshani madam's lecture. She explained to us about universal human values. She told us that our priority should be happiness, not physical facilities. She also give us a activity. Mam lecture was so good. 
