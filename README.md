@@ -34,4 +34,8 @@ We got a lecture on P2P by our seniors. They taught and explained us very well.
 Now our English lecture started which was conducted by Professor Manjot Kaur. He took our introduction.
 #### After this we had a break for one hour from 11:30 AM to 12:30 PM.
 ### At 12.30 to 2.30 PM
--Today was the 2nd day of Priya Darshani madam's lecture. She explained to us about universal human values. She told us that our priority should be happiness, not physical facilities. She also give us a activity. Mam lecture was so good. 
+- Today was the 2nd day of Priya Darshani madam's lecture. She explained to us about universal human values. She told us that our priority should be happiness, not physical facilities. She also give us a activity. Mam lecture was so good. 
+### At 2.30 to 3.30 PM
+- Now the causmic club session was started which was conducted by our seniors. They give us intro about causmic club and also show the website of causmic club on various platforms .
+- They told us that they strive to provide a platform for students from all departments for sharing conscience about universe so that a community of innovators is cherished.
+### It's all about the 4th day of induction.
